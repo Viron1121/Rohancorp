@@ -2,9 +2,9 @@
 
 Group 3 BSIT 2C
 
-Group Leader: Parinas, Jashmer
+Group Leader: Navarro, Viron
 
-Navarro, Viron L.
+Parinas, Jashmer
 
 Lacadin, John Lloyd
 
