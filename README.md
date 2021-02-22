@@ -2,13 +2,13 @@
 
 Group 3 BSIT 2C
 
+Group Leader: Jashmer Parinas
+
 Viron L. Navarro 
 
 John Lloyd S. Lacadin
 
 Jomari S. Borje
-
-Jashmer Parinas
 
 Allen Ray Estanislao
 
